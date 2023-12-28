@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @SingerYatmal
+- 👀 I’m interested in ruining school property
